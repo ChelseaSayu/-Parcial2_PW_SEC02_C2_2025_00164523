@@ -1,1 +1,1 @@
-# -Parcial2_PW_SEC02_C2_2025_00164523
+00164523 Chelsea Sayuri Mejia Vasquez seccion 02
